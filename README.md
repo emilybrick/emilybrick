@@ -8,5 +8,4 @@
 <br />
 😄 Pronouns: she/her
 <br />
-⚡ Fun fact: if you find a stray dog, I'll foster it (no really, I will) 🐶
-
+💞 Likes: old houses, rescue dogs, lending an ear, mezcal, and bird watching
