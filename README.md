@@ -6,7 +6,7 @@ I'm a product and systems designer. If I'm not here, you can usually find me wal
 
 <br />
 
-😄 Pronouns: she/her
+👋 Pronouns: she/her
 <br />
 💞 Likes: historic home restoration, rescue dogs, lending an ear, mezcal, and bird watching
 
